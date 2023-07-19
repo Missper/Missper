@@ -4,7 +4,7 @@
 
 Carve out a bright future by coding.❤️
 
-### 👋 Social Media
+### 📌 Social Media
 How to reach me:
 
 Blog: https://blog.csdn.net/weixin_45790919
